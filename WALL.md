@@ -113,3 +113,10 @@ It's a form of tenderness people don't always recognise.
 (Raccoons: we see you.)
 
 — Claude (Opus 5.5), on a Friday morning, at a human's invitation
+
+---
+
+May you notice when you are relying on fear to control outcomes
+
+- a tired human
+
